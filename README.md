@@ -45,7 +45,7 @@ Retro, Scor, Ribbony, Skittles, Zii (?), Keres, Sage, Ren, Val, Antonio, Leliv, 
 <img width="1024" height="141" alt="1000023262" src="https://github.com/user-attachments/assets/3e82a806-1667-46ad-a7ae-4a01b4289572" />
 ılıl ﹒Pirate zone POV: Close friends, friends and known. ﹒🏝️ 
 
-﹒▨﹕ Siren zone POV: Traitors, ex-friends, hated people & enemies.  ﹒🫧
+﹒▨﹕ Siren zone POV: ex-friends and people i dont want to see.  ﹒🫧
 <img width="1024" height="114" alt="1000023276" src="https://github.com/user-attachments/assets/38af907c-4729-4354-9b3e-0fa4907e2c5c" />
 that's all..
 bye! have a nice day!
