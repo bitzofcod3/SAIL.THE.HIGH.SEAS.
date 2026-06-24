@@ -26,7 +26,7 @@
 <img width="1024" height="114" alt="1000023259" src="https://github.com/user-attachments/assets/35a54347-b0e3-42d3-bfeb-c0243d2e1e2a" />
 
 
-Retro, Scor, Ribbony, Skittles, Zii (?), Keres, Sage, Ren, Val, Antonio, Leliv, Molly, Zach, Pearl, Oliver, Juan, Alexandra, Danni, Gr3y, Sonne, Rebecca, Fizzy (?), Bread (?), more.  ﹒<3
+Retro (captain), Scor, Ribbony, Skittles, Zii (?), Keres, Sage, Ren, Antonio, Leliv, Molly, Zach, Pearl, Oliver, Juan, Alexandra, Danni, Gr3y, Sonne, Rebecca, Fizzy (?), Bread (?), more.  ﹒<3
 <img width="2048" height="109" alt="1000019487" src="https://github.com/user-attachments/assets/d4596f98-c07a-4fb3-8063-39b72b099548" />
 <img width="1024" height="183" alt="1000023258" src="https://github.com/user-attachments/assets/4ac390e7-8672-4253-b073-9dcba5cda6fb" />
 
@@ -38,7 +38,7 @@ Retro, Scor, Ribbony, Skittles, Zii (?), Keres, Sage, Ren, Val, Antonio, Leliv, 
 <img width="1024" height="215" alt="1000023274" src="https://github.com/user-attachments/assets/038a600f-a750-491b-8dab-ec3eabf64b31" />
 <img width="2048" height="109" alt="1000019487" src="https://github.com/user-attachments/assets/d4596f98-c07a-4fb3-8063-39b72b099548" />
 <img width="1013" height="133" alt="1000023275" src="https://github.com/user-attachments/assets/60ad9c73-aa98-4fb6-8c80-3a350118e5dd" />
- Hazy, Dexter, Ximena, X_om (?), Ha-eun, Tato, Alaric, Imani, Ny, Whimsies, etc. ﹒🗺️
+ Hazy, Val, Dexter, Ximena, X_om (?), Ha-eun, Tato, Alaric, Imani, Ny, Whimsies, etc. ﹒🗺️
 <img width="2048" height="109" alt="1000019487" src="https://github.com/user-attachments/assets/d4596f98-c07a-4fb3-8063-39b72b099548" />
 
 #### ﹕🗡️﹒ZONE CLASSIFICATION ﹐ ★
